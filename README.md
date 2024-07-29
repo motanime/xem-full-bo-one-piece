@@ -4,9 +4,9 @@ Xem Phim One Piece (Đảo Hải Tặc) Tập 1114 + Tập 1115 + Tập 1116 Vie
 
 ============================
 
-🎬◉▶️<b><a href="https://hhchina.net/thong-tin-phim/one-piece-2.html"> Xem Phim Detective Conan Movie 27 (2024) Vietsub</a></b>
+🎬◉▶️<b><a href="https://hhchina.xyz/thong-tin-phim/one-piece-2.html"> Xem Phim Detective Conan Movie 27 (2024) Vietsub</a></b>
 
-📁◉▶️<b><a href="https://hhchina.net/thong-tin-phim/one-piece-2.html"> Tải Phim Detective Conan Movie 27 (2024) Full HD</a></b>
+📁◉▶️<b><a href="https://hhchina.xyz/thong-tin-phim/one-piece-2.html"> Tải Phim Detective Conan Movie 27 (2024) Full HD</a></b>
 
 ============================
 Để có những giây phút xem những bộ phim hay, hot nhất hiện nay thì không thể không ghé qua các website xem phim One Piece - Đảo Hải Tặc mà chất lượng Full HD miễn phí này.
